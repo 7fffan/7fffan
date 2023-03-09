@@ -5,7 +5,7 @@
 ## 😎About Me
 <samp>
 
-- 🤡 I’m Power.
+- 😉 I’m Power.
 - 🌏 China.
 - 🔗 www.boxove.com
 - 📧 power@boxove.com
